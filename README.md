@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything Data analytics related project
 - 📫 How to reach me ; Ashimiusaheed33@gmail.com
 - 😄 Pronouns: HE/HIM
-- ⚡ Fun fact: I love Travelling, Reading and seeing the nature.
+- ⚡ Fun fact: I love Travelling, Reading and Seeing the nature.
 
 <!---
 SAHEED2024/SAHEED2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
